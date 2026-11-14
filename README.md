@@ -1,3 +1,4 @@
+https://www.icloud.com/sharedalbum/#D2Nv3Zc1ZRqUikn5kX1rKGrVzMACAEQARogrEek_FTRLsXd_7dsPKeed-bMlxxSzGx67AQJz0zXkXI
 Владе, якщо ти бачиш це повідомлення і читаєш його, то це дуже добре!
 
 Я зробив сайт для мами, щоб вона могла продавати свої речі через інтернет! І мені потрібно, щоб ти його налаштував.
